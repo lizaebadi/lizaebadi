@@ -1,4 +1,6 @@
-### About me 👋
+### Liza Ebadi 👋
+
+## About me 
 
 As a curious and proactive junior software engineer, I am driven by a passion for continuous improvement. With a background in pensions and starting at a fast paced start-up, I continued to grow rapidly with the company over the next 5 years. I have honed my communication skills through daily interactions with high net worth clients, various professionals and colleagues I managed.
 
